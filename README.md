@@ -19,7 +19,7 @@
 
 ### 📫 Reach Me
 - **Email:** faizaabbasi988@gmail.com  
-- **Google Scholar:** [OkezVqIAAAAJ](https://scholar.google.com/citations?hl=en&user=OkezVqIAAAAJ)  
+- **Google Scholar:** [Faiza Abbasi](https://scholar.google.com/citations?hl=en&user=OkezVqIAAAAJ) 
 - **LinkedIn:** [faiza-abbasi988](https://www.linkedin.com/in/faiza-abbasi988/)
 
 ---
